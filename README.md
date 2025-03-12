@@ -35,9 +35,7 @@ Además, dedico los fines de semana al voluntariado con niños y jóvenes (10-15
 
 ## 📫 Contacto
 
-📍 **Ubicación:** Burriana, Castellón  
-📧 **Correo:** [a3a4@gmail.com](mailto:a3a4@gmail.com)  
-💼 **LinkedIn:** [linkedin.com/in/angela-ausina-728669255](https://www.linkedin.com/in/%C3%Aingela-ausina-728669255/)  
+💼 **LinkedIn:** [linkedin.com/in/angela-ausina-728669255](www.linkedin.com/in/ángela-ausina-728669255)  
 🐙 **GitHub:** [github.com/al415633](https://github.com/al415633)  
 
 ¡Gracias por visitar mi perfil! 🚀
